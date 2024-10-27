@@ -6,6 +6,6 @@
 
 💼 Looking to collaborate on projects that challenge my coding skills, especially in C.
 
-📫 Reach me at ayaejmail@gmail.com.
+📫 Reach me at ayaejmail7@gmail.com.
 
 ⚡ Fun fact: I’m passionate about exploring study techniques and mental wellness to support students in achieving their goals.
