@@ -1,4 +1,4 @@
-👋 Hi, I’m Aya Jamil, a software engineering student at the Technion Institute of Technology.
+👋 Hi, I’m Aya Jamil, a second year software engineering student at the Technion Institute of Technology.
 
 👀 I’m interested in software development, problem-solving, and crafting efficient code.
 
